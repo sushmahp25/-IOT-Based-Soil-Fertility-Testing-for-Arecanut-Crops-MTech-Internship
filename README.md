@@ -1,0 +1,1 @@
+# -IOT-Based-Soil-Fertility-Testing-for-Arecanut-Crops-MTech-Internship
